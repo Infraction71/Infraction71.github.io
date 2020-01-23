@@ -4,7 +4,7 @@
 A couple of my favorite things in the world is traveling and hockey, so I thought it would be appropriate to talk about that here.
 
 
-## Usefull websites.
+**Usefull websites.**
 Here are some useful websites that I have fond would be useful for both traveling and hockey. Most of these are just a great way to brun time.
  * [SeatGuru](https://www.seatguru.com/) is a website that tracks every airline and every seat configuration. Ever wonder what seat you should or should not pick? Seatguru can tell you the dimensions of every seat, as well as things like if there is a missing window.
  * [FlightAware](https://flightaware.com/) is a intresting website. It tracks every airplane in the air. It can be good for tracking someoene's flight, or just looking around in general. 
