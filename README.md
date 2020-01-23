@@ -1,6 +1,4 @@
 # Matthew Berry
-
-## asdfasdfasdf
 A couple of my favorite things in the world is traveling and hockey, so I thought it would be appropriate to talk about that here.
 
 
