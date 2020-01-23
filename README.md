@@ -20,7 +20,7 @@ I have been fortuante enough to go on many trips. Here is a top five:
 5. Denver
 
 
-I went on two major trips in 2019. The first was studying abraod in Birmingham England, which was pretty incrediable. Why was it awesome? Well it looked a bit like this:
+I went on two major trips in 2019. The first was studying abraod in Birmingham England, which was pretty incrediable. Why was it awesome? Well, it looked a bit like this:
 
   
  
