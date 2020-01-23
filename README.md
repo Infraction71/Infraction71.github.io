@@ -10,7 +10,6 @@ Here are some useful websites that I have fond would be useful for both travelin
  * [FlightAware](https://flightaware.com/) is a intresting website. It tracks every airplane in the air. It can be good for tracking someoene's flight, or just looking around in general. 
  * [HockeyDB](http://www.hockeydb.com/) is a website that tracks every player and league at about any level past high school hockey. Do you know someone who played hockey at a fairly compettive level? This website probably has their information. Do you wonder if your city ever had a hockey team? HockeyDB has that too. 
 
-Ok, on to the next section.
  
  ### Trips
 
